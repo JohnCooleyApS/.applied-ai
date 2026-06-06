@@ -1,4 +1,4 @@
-# AI & Growth Strategist | Fractional CAIO · AI Growth Consultant · Community Builder · Øresund Region**
+# AI & Growth Strategist | Fractional CAIO · AI Growth Consultant · Community Builder · Øresund Region
 I help businesses transform AI from a "fun toy" into business-critical infrastructure that directly impacts the bottom line.
 
 ## 🚀 What I Do
